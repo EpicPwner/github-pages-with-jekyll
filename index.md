@@ -1,3 +1,5 @@
-# Welcome to my blog
+# ___Proud to be___
 
-I'm glad you are here. I plan to talk about ...
+### Proudly showing off our nerdiness since 2015
+
+#### _2015 - Forever_
